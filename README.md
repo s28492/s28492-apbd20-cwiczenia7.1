@@ -1,0 +1,1 @@
+# s28492-apbd20-cwiczenia7.1
